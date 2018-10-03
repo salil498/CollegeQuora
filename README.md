@@ -1,2 +1,2 @@
 # CollegeQuora
-inno
+i;nno
